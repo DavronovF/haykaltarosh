@@ -1,1 +1,1 @@
-# haykaltarosh
+# haykaltarosh.uz
